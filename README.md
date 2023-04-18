@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **AHachey17@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1yuG0kA4kl0taw9PTJ0CEHuqwxK1wbV-qdGfZrI7vquw/edit?usp=sharing](https://docs.google.com/document/d/1yuG0kA4kl0taw9PTJ0CEHuqwxK1wbV-qdGfZrI7vquw/edit?usp=sharing)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1yuG0kA4kl0taw9PTJ0CEHuqwxK1wbV-qdGfZrI7vquw/edit?usp=sharing)
 
 - ⚡ Fun fact **I received my Cosmetology License 10 years ago.**
 
